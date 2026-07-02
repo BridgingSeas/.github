@@ -1,4 +1,4 @@
-# Bridging Seas
+# [Bridging Seas](https://www.bridgingseas.com/)
 
 ## What is Bridging Seas?
 Bridging Seas is a youth-led global organization that aims to unify the Asian diaspora. Through our international **pen pal program**, we connect high school students across countries to build lasting friendships and learn from one another's cultures and lived experiences.
