@@ -1,2 +1,2 @@
-# .github
-Bridging Seas
+# Bridging Seas
+## What is Bridging Seas?
